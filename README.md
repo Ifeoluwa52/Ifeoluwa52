@@ -2,7 +2,7 @@
 - 👀 I’m interested in connecting and networking
 - 🌱 I’m currently learning software engineering 
 - 💞️ I’m looking to collaborate on the project given to us
-- 📫 How to reach me on my phone +2349029606507 or email @ ifeoluwababajide5@gmail.com
+- 📫 How to reach me on my phone +2349155021091 or email @ ifeoluwababajide5@gmail.com
 
 <!---
 Ifeoluwa52/Ifeoluwa52 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
